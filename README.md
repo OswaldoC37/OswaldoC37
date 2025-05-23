@@ -32,8 +32,8 @@
 
 ### 📫 Contacto
 
-📧 alonsocamposrios54@gmail.com  
-🌐 [LinkedIn (opcional si lo tienes)](https://www.linkedin.com)
+📧 OswaldoC73@proton.me
+
 
 ---
 
